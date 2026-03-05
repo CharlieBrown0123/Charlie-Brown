@@ -1,2 +1,0 @@
-# Charlie-Brown
-My Resume
